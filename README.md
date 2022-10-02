@@ -1,2 +1,3 @@
 # Truly-First
 Let's forget this "Firts" rep...
+![Мем](https://user-images.githubusercontent.com/114099385/193472724-24aa7622-731f-4d72-8a3f-9b7b67cc4fcc.jpg)
